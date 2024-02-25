@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JackenyleSadoski
-- 👀 I’m interested in developing 
+- 👀 I’m interested in learn and practice.
 - 💞️ I’m looking to collaborate on projects and a job.
 - 📫 How to reach me jackesadoski@yahoo.com
 - 😄 Pronouns: she
